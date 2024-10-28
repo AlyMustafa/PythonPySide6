@@ -1,1 +1,1 @@
-KIck OFF
+Kick OFF
